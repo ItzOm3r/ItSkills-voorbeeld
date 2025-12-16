@@ -1,1 +1,2 @@
-# ItSkills-voorbeeld
+# ItSkills-voorbeeld  
+Ömer SOD1C  
